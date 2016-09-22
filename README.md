@@ -2,4 +2,4 @@
 
 Hello, welcome
 
-Come on in
+Come on in, sit down, get a feel for the place.
